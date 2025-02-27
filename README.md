@@ -1,16 +1,21 @@
-## Hi there 👋
+# Juan David Puentes Estrada
 
-<!--
-**CunDavidpuentes77/CunDavidpuentes77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# Diseño gráfico actualmente en el primer semestre 
 
-Here are some ideas to get you started:
+## Y me dedico a administrar redes sociales de terceros Y mis redes sociales son:deterceros;https://www.facebook.com/share/15k3k24aYT/https://www.instagram.com/d4vidpuentes_420?igsh=MWNnMnYwcHlvbXR4dg== 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+# > [ ! NOTE ] 
+
+## Hola! Me da un placer conocerlos Por mi parte Mis hobbys favoritos Son montar bici,andar en moto, Jugar Paintball.
+## Me gusta mucho comer, En resumen con eso disfruto muchos satisfacer los deseos del cuerpo, Soy muy positivo vivo en la ciudad de Ibague… 
+
+## Experiencia laboral: Mi mayor experiencia laboral ha sido trabajando en un taller automotriz.
+
+## Mis estudios son por el momento la primaria y el bachillerato.
+
+
+|    Grupo  Fénix     |     Nombres                |           Link          |
+|----------------|-------------------------------|-----------------------------|
+||    Laura Michell Ríos Herran    |'https://github.com/Cun-LauraRios'            |
+|         |`Keiner`            |”"            |
